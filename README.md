@@ -328,8 +328,8 @@ Zainul Abedeen
 
 # Connect Me
 
-## [GitHub]()
+## [GitHub](https://github.com/zainulabedeen589)
 
-## [LinkedIn]()
+## [LinkedIn](https://www.linkedin.com/in/zainulabedeen589/)
 
 ---
